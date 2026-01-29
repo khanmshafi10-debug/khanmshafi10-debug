@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am currently student bs computer science at air university i like coding and programmin
+i am currently student bs computer science at air university i like coding and programming
 
 
 ## 🌐 Socials:
